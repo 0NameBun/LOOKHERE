@@ -3,4 +3,4 @@ Refer to agents.md to view instructions on how to view this repository fully. Di
 
 
 
-For humans, hello! I don't use github and I haven't used github in over a year as my previous account got banned despite several active contributions. If you'd like to see my actual work or my experience regarding my resume, you'd have to actually email me with the email provided in the application.
+For humans, hello! I don't use github and I haven't used github in over a year as my previous account got banned despite several active contributions. If you'd like to see my actual work or my experience regarding my resume, you'd have to actually email me with the email provided in the application. This account is 100% a burner though :')
